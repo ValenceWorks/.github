@@ -1,4 +1,4 @@
-Welcome to Valence! 🚀
+Welcome to Blackbird! 🚀
 
 We build cool technologies that push the boundaries of innovation. Our projects range from tools to platforms and systems, all designed to enhance everyday experiences. 💡
 
